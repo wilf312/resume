@@ -1,4 +1,5 @@
 # resume
+updated 20200708 from https://lapras.com/jobs
 
 
 
