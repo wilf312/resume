@@ -5,6 +5,8 @@ updated 20210116 from https://lapras.com/jobs
 ## 株式会社リクルートライフスタイル
 ### フロントエンドエンジニア 兼 フロントエンドリーダー
 
+AirWAITチーム
+
 2017年4月 – 現在
 
 ## SOLIZE株式会社
