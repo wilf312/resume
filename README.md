@@ -4,7 +4,7 @@ updated 20210116 from https://lapras.com/jobs
 
 ## 株式会社ライトカフェクリエイション
 ### 技術顧問
-2021年11月 – 現在
+2021年11月 – 2022年12月
 
 
 ## 株式会社リクルートライフスタイル
@@ -12,7 +12,7 @@ updated 20210116 from https://lapras.com/jobs
 
 AirWAITチーム
 
-2017年4月 – 現在
+2017年4月 – 2022年12月
 
 
 #### AirREGI海外
