@@ -1,5 +1,5 @@
 # resume
-updated 20210116 from https://lapras.com/jobs
+updated 2024
 
 
 ## 株式会社エス・エム・エス
